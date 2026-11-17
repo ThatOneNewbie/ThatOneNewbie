@@ -1,5 +1,8 @@
-## Hi there 👋
+## XD Hey There, I'm Ramsey! ✌️
 
+Your average guy just nerding out on Tech 👀
+Gimmie an old laptop ill make it useful.
+Linux, Music, and Photography, run my life and you cant forget the big J!✝️
 <!--
 **ThatOneNewbie/ThatOneNewbie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
